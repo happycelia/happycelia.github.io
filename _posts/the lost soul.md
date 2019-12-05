@@ -11,7 +11,9 @@ tags:
     - thriller
     - fantasy
     - mystery
----Crossing the road was a risk, especially near the Broadway. Cars were driving as fast as light, while many pedestrians did not watch what they were doing. Crossed when the lights turned red, and almost getting hit every inch. I thought I could do the same. The next minute, I was running too. Heading for the other side of the road, however I did not succeed. Instead, I was badly hit by a road-ranger. Falling to the road with my skin completely cut open was the last thing I could remember. With the ambulance and my guardians screaming and crying at me.
+---
+
+Crossing the road was a risk, especially near the Broadway. Cars were driving as fast as light, while many pedestrians did not watch what they were doing. Crossed when the lights turned red, and almost getting hit every inch. I thought I could do the same. The next minute, I was running too. Heading for the other side of the road, however I did not succeed. Instead, I was badly hit by a road-ranger. Falling to the road with my skin completely cut open was the last thing I could remember. With the ambulance and my guardians screaming and crying at me.
 
 But that was a new story for me. The sudden abduction made me hard to realize. However, before I knew what on earth happened to me. I was driven out of my body. I could see my carcasses, just on the road with squirts of blood. It was a dreadful sight, and I knew I must have been dead. My guardians weeping so much, on the side of my body that I could feel their excruciating. Nevertheless I could not shout or call.
 
