@@ -70,4 +70,4 @@ Lena: you have no idea what you just did, Jenna.
 
 Jenna: oh yes I did. You see, this is what I have always been made to do, it wasn’t to be with you assholes, it was to do something as memorable as this. 
 
-Hayden: YOU TRAITOR! 
+Hayden: YOU TRAITOR!
